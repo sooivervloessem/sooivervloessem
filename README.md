@@ -9,6 +9,7 @@ I like breaking things (ethically), fixing what matters, and staying one step ah
 
 ### Socials
 - 💼 LinkedIn: https://www.linkedin.com/in/sooi-vervloessem-a3697a291
+- ✍️ Medium: https://medium.com/@sooi.vervloessem
 - 🌐 Website: https://sooivervloessem.netlify.app/
 
 
